@@ -32,8 +32,8 @@
 
 ### 📫 Connect With Me
 - 🌐 Portfolio (Coming Soon)
-- 📷 Instagram
-- 💼 LinkedIn
+- 📷 Instagram: fajar_jay17
+- 💼 LinkedIn: Fajar Ferdiansyah
 
 ---
 
